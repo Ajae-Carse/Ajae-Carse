@@ -2,7 +2,7 @@
 - 👀 I’m interested in Video Editing and Content Creation
 - 🌱 I’m currently improving my Editing Skills and Innovating my TikTok account @ajaemyousick
 - 💞️ I’m looking to collaborate on Tiktok @ajaemyousick
-- 📫 How to reach me Email Adress: w4v3rsyt@gmail.com
+- 📫 Contact me Email Address: w4v3rsyt@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm deep hahaha
 
